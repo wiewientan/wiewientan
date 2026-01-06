@@ -1,4 +1,4 @@
-# **HI THERE, WELCOME ;3**
+# **hi there, welcome;3**
 
 
 ## Socials
